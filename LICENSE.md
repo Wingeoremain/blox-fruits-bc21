@@ -1,4 +1,4 @@
-#  
+#  Profesional escape tsunami for brainrots scripts es el mejor escape tsunami for brainrots scripts con acceso a servidor privado y ESP. Seguro, confiable y optimizado para el
 
 
 
